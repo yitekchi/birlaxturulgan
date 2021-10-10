@@ -1,0 +1,2 @@
+# birlaxturulgan
+birlaxturulgan
